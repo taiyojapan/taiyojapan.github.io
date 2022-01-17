@@ -1,0 +1,1 @@
+# taiyojapan.github.io
